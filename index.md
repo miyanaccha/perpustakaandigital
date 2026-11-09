@@ -12,6 +12,6 @@ Berikut ini adalah Koleksi yang dimiliki:
 8. [Hobi yang Merepotkan ebook](ebook/Hobi yang Merepotkan ebook.pdf) – Wanti Kustari (2025)
 9. [Kue Labu Andini ebook](ebook/Kue Labu Andini ebook.pdf) – Restu Nur Cholidah (2025)
 10. [Mi Panjang Umur ebook](ebook/Mi Panjang Umur ebook.pdf) – Weni Rahayu (2025)
-11. [UGC PATI](ebook/UGC PATI.pdf) – Fajrina Aphroditha Putri Handono (2026)
+11. [UGC PATI ](ebook/UGC PATI .pdf) – Fajrina Aphroditha Putri Handono (2026)
 ---
 *Powered by GitHub Pages*
