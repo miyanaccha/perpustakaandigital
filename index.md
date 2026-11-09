@@ -7,7 +7,7 @@ Berikut ini adalah Koleksi yang dimiliki:
 3. [Karena Anggrek Ibu ebook](ebook/Karena Anggrek Ibu ebook.pdf) – Debby Lukito Goeyardi and Widyasari Hanaya (2024)
 4. [Biji Merah Luna ebook](ebook/Biji Merah Luna ebook.pdf) – Ammy Kudo dan Mel Darmawan (2023)
 5. [Apa Yang Lebih Seru ebook](ebook/Apa Yang Lebih Seru ebook.pdf) – Fajriatun Nurhidayati & Reni Armanita (2023)
-6. [Aku sudah besar ebook](ebook/Aku%20sudah%20besar%20ebook.pdf) – Futri Wijayanti (2023)
+6. [Aku Sudah Besar ebook](ebook/Aku Sudah Besar ebook.pdf) – Futri Wijayanti (2023)
 7. [Namaku Kali ebook](ebook/Namaku Kali ebook.pdf) – Anna Farida dan Felishia (2022)
 8. [Hobi yang Merepotkan ebook](ebook/Hobi yang Merepotkan ebook.pdf) – Wanti Kustari (2025)
 9. [Kue Labu Andini ebook](ebook/Kue Labu Andini ebook.pdf) – Restu Nur Cholidah (2025)
